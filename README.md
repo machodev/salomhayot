@@ -1,0 +1,2 @@
+# salomhayot
+tabiat haqida malumotlar
